@@ -1,4 +1,4 @@
-# Hi there 👋 I'm Abucuk
+# Hi there 👋
 
 🎮 Gamer & Minecraft fan  
 🏫 Student  
